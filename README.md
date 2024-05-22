@@ -36,4 +36,8 @@ Thanks for this course!
 
 Favourite molecule - Multimerin-1 (MMRN1)
 
+# Name - Oscar
+
+Thanks for the course, it was really insightful!
+Favourite molecule - Enterobactin. A siderophore that some *Enterobacteriaceae* use to take up extracellular iron.
 
